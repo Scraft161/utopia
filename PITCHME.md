@@ -20,7 +20,7 @@ Dit is het verhaal achter [van microfoon weg] hoe noemt dit ook alweer? [onhoorb
 +++
 # Utopia II
 +++
-![](aarde_utopia.jpg)
+![](aarde utopia.jpg)
 +++
 Een perfecte wereld (tenminste in één persoon's perspectief)
 +++
