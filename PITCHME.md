@@ -17,6 +17,8 @@ Na dit alles zijn de mensen gaan geloven in
 +++
 Dit is het verhaal achter [van microfoon weg] hoe noemt dit ook alweer? [onhoorbaar] begrepen [in microfoon] [overgang naar zwart met daarop volgend titel] Utopia II [overgang naar aarde die zweeft in de ruimte]
 +++
+![](aarde utopia.jpg)
++++
 Een perfecte wereld (tenminste in één persoon's perspectief)
 +++
 De bevolking heeft zich opgedeeld in groepen gebaseerd op hun geloof (Dus toch niet zo vershillend van vroeger)
