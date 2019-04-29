@@ -16,6 +16,6 @@ Na dit alles zijn de mensen gaan geloven in
 +++
 #Hendixxisme [van microfoon weg] wie heeft dit geschreven? [onhoorbaar] wie heeft dan die naam verzonnen? [terug in microfoon]
 +++
-
+Dit is het verhaal achter [van microfoon weg] hoe noemt dit ook alweer? [onhoorbaar] begrepen [in microfoon] Utopia MKII
 ---
 racisme/dicriminatie
