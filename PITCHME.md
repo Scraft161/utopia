@@ -13,7 +13,7 @@ Gelukkig voor ons wouw de almachtige Hendrickx(vernietiger van hitte) [van micro
 De mensheid heeft dan ook zijn les geleerd en is overgestapt op hernieuwbare energie
 +++
 Na dit alles zijn de mensen gaan geloven in
-#Hendixxisme [van microfoon weg] wie heeft dit geschreven? [onhoorbaar] wie heeft dan die naam verzonnen? [terug in microfoon]
+#Hendickxisme [van microfoon weg] wie heeft dit geschreven? [onhoorbaar] wie heeft dan die naam verzonnen? [terug in microfoon]
 +++
 Dit is het verhaal achter [van microfoon weg] hoe noemt dit ook alweer? [onhoorbaar] begrepen [in microfoon] [overgang naar zwart met daarop volgend titel] Utopia II [overgang naar aarde die zweeft in de ruimte]
 +++
