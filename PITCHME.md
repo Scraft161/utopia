@@ -15,9 +15,12 @@ De mensheid heeft dan ook zijn les geleerd en is overgestapt op hernieuwbare ene
 Na dit alles zijn de mensen gaan geloven in
 #Hendickxisme [van microfoon weg] wie heeft dit geschreven? [onhoorbaar] wie heeft dan die naam verzonnen? [terug in microfoon]
 +++
-Dit is het verhaal achter [van microfoon weg] hoe noemt dit ook alweer? [onhoorbaar] begrepen [in microfoon] [overgang naar zwart met daarop volgend titel] Utopia II [overgang naar aarde die zweeft in de ruimte]
+Dit is het verhaal achter [van microfoon weg] hoe noemt dit ook alweer? [onhoorbaar] begrepen [in microfoon] dit is het verhaal van.
 +++
-![](aarde utopia.jpg)
++++
+# Utopia II
++++
+![](aarde_utopia.jpg)
 +++
 Een perfecte wereld (tenminste in één persoon's perspectief)
 +++
