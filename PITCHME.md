@@ -8,7 +8,7 @@ Trump heeft zijn muur gebouwd (maar die is al afgebroken door de mexicanen)
 +++
 De effecten van de opwarming van de aarde waren erger dan we dachten
 +++
-Gelukkig voor ons wouw de almachtige Hendrickx(vernietiger van hitte) [van microfoon weg] wat is dit script!? [terug in microfoon] de opwarming van de aarde omkeren om voor ons het perfecte klimaat te maken
+Gelukkig voor ons wouw de almachtige Hendrickx(vernietiger van eeuwige ondraagbare hitte) [van microfoon weg] wat is dit script!? [terug in microfoon] de opwarming van de aarde omkeren om voor ons het perfecte klimaat te maken
 +++
 De mensheid heeft dan ook zijn les geleerd en is overgestapt op hernieuwbare energie
 +++
