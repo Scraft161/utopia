@@ -16,8 +16,7 @@ Na dit alles zijn de mensen gaan geloven in
 #Hendickxisme [van microfoon weg] wie heeft dit geschreven? [onhoorbaar] wie heeft dan die naam verzonnen? [terug in microfoon]
 +++
 Dit is het verhaal achter [van microfoon weg] hoe noemt dit ook alweer? [onhoorbaar] begrepen [in microfoon] dit is het verhaal van.
-+++
-+++
+---
 # Utopia II
 +++
 ![](aarde_utopia.jpg)
@@ -46,7 +45,7 @@ De wereld word gelijd door de burgers (en een paar mensen om er voor te zorgen d
 +++
 criminalitiet bestaat practish niet en de mensen die dan toch de wet overtreden worden op een manier behandeld dat ze spijt hebben om wat ze hebben gedaan
 +++
-het meeste werk word gedaan door robots die een kopie hebben van de wetten van robotica (om te delen)
+het meeste werk word gedaan door robots die één kopie hebben van de wetten van robotica (om te delen)
 +++
 het werk dat dan niet gedaan word door robots of artificiële intellgentie word dan gedaan door mensen die te veel vrije tijd hebben (iedereen dus)
 +++
@@ -60,5 +59,3 @@ er zijn openbare parken en sporthallen
 +++
 er is een vrije meninguiting zolang je een ander zijn grenzen respecteerd
 en dit allemaal terwijl we onze privacy kunnen behouden
----
-# HEIL HENDRICKX
